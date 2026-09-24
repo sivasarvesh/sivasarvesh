@@ -101,7 +101,7 @@ information.
 ## 📫 Connect With Me
 
 - 💼 LinkedIn: [Sivasarvesh M](https://linkedin.com/in/sivasarvesh-m-89569b422)
-- 📧 Email: sivasarvesh15@gmail.com
+- 📧 Email: sivasarvesh95@gmail.com
 
 ---
 
